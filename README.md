@@ -1,15 +1,14 @@
-PET SHOP
+PET SHOP HRR 
+Tudo para seu pet:
 
-HRR Tudo para seu pet:
+🐾 Banho e tosa
 
-Banho e tosa
+🐾 Rações
 
-Rações
+🐾 Hidratação
 
-Hidratação
+🐾 Petiscos
 
-Petiscos
+🐾 Caminhas
 
-Caminhas
-
-Vacinas
+🐾 Vacinas
