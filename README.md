@@ -1,15 +1,25 @@
-PET SHOP
+PET SHOP HRR Tudo para seu pet:
 
-HRR Tudo para seu pet:
+🐾Banho e tosa
 
-Banho e tosa
+🐾Rações
 
-Rações
+🐾Hidratação
 
-Hidratação
+🐾Petiscos
 
-Petiscos
+🐾Caminhas
 
-Caminhas
+🐾Vacinas
 
-Vacinas
+Rua José Rivas 203📍
+
+Para mais informações:
+
+Pet Shop Hrr
+
+PetshopHrr30
+
+(41) 9 9667-3436 
+
+@wwwhrr.sitecom.br
